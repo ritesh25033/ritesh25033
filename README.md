@@ -56,7 +56,7 @@ I'm eager to collaborate on:
 ## 📫 Let’s Connect!  
 📧 **Email**: ritesh25033@gmail.com  
 💻 **GitHub**: [Ritesh Agrahari](https://github.com/ritesh25033)  
-💼 **LinkedIn**: [Your LinkedIn Profile](https://linkedin.com/in/your-linkedin-profile)  
+💼 **LinkedIn**: [Your LinkedIn Profile](https://www.linkedin.com/in/riteshagrahari25033/)  
 
 ---
 
